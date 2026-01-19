@@ -1,4 +1,4 @@
-# ai-in-education-project
+https://www.canva.com/design/DAG-gjy4CRQ/DVuXHN7zuRmZCBZC4jwUWg/edit?utm_content=DAG-gjy4CRQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton# ai-in-education-project
 AI project based on AI Business for Professionals course
 AI in Education – Smart Learning System
 
